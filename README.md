@@ -1,4 +1,4 @@
-Presenting Byzzen GitHub: A Community Where Sharing Matters!
+Presenting Byzzen GitHub: A repo Where Sharing Matters!
 
 Hey, thanks for visiting Byzzen GitHub! Let me introduce myself as Martin Byskov and explain why this location is unique. It all began when I had this strong urge to provide a platform where I could communicate with people around the world and spread some love and compassion in the process.
 
